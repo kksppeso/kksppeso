@@ -1,1 +1,1 @@
-CowTitanhttps://api.kksppeso.vipyatourokkspsocanpi
+CowTitanhttps://api.kksplending.comyatourokkspsocanpi
